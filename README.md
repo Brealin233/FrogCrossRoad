@@ -1,2 +1,2 @@
 # FrogCrossRoad
-[ss](www.brealinhub.com)
+[ss](https://brealinhub.com)
